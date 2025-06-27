@@ -1,2 +1,0 @@
-# myportfolio
-Everything About ME
